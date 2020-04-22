@@ -1,1 +1,0 @@
-# Bakina-kuhinja
